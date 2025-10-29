@@ -1,4 +1,4 @@
-AI Video Extender - Latest Model, Seamless Extension
+# AI Video Extender - Latest Model, Seamless Extension
 
 Best [AI Video Extender](https://aivideoextender.org/) Powered by Latest WAN 2.5 & Veo 3.1 Technology:
 
